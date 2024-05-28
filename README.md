@@ -1,0 +1,1 @@
+Just click the link file, I will be honest , I cannot for the life of me remeber what kind of stuff i made in here, the document was lost/ corrupted somehow in m usb and was deleted by group mate with shared editor access.
